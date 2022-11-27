@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **C, Python**
 
-- 📫 How to reach me **dhruv2019cs199abesit@gmail.com**
+- 📫 How to reach me ****
 
 - ⚡ Fun fact **It's Good to be Bad**
 
